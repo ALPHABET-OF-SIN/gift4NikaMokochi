@@ -21,7 +21,7 @@ $\color{#86C1B3}{\text{ bisexㅤ+ lesbo ㅤㅤㅤㅤㅤ demigirl + genderfluid }
 
 $\color{#86C1B3}{\text{ pizzaguy ㅤ,ㅤ guest1337 ㅤ,ㅤ noctis ㅤ,ㅤ cloud ㅤㅤㅤyume♡ }}$
 
-<details><summary>$\color{#D69560}{\text{ social links ! }}$</summary>
+<details><summary>$\color{#D69560}{\text{ social ㅤㅤㅤlinks ㅤㅤㅤ! }}$</summary>
 
 
 [<img alt="moe moeee kyun kyunnnn" src="https://i.postimg.cc/9QWy2LDK/Khong-Co-Tieu-De111-20261124190353.png" />](https://pronouns.cc/@nikamokochi)
@@ -33,5 +33,9 @@ $\color{#86C1B3}{\text{ pizzaguy ㅤ,ㅤ guest1337 ㅤ,ㅤ noctis ㅤ,ㅤ cloud 
 ](https://nikamokochi.atabook.org/) 
 
 [<img alt="fat little chud" src="https://i.postimg.cc/WzNJV33F/Khong-Co-Tieu-De114-20261124193225.png" />](https://guns.lol/nikamokochi)
+
+</details>
+
+<details><summary> $\color{#FDDD8A}{\text{ friends ㅤㅤㅤ/ㅤㅤㅤ oomfs }}$ </summary> 
 
 </details>

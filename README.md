@@ -12,6 +12,11 @@
 
 $\color{#FDDD8A}{\text{ eng , vie , kor !}}$
 
-$\color{#D69560}{\text{ june 20th ㅤㅤㅤ sheher/theythem }}$
+$\color{#D69560}{\text{ juneㅤ20th ㅤㅤㅤ sheherㅤ/ㅤtheythem}$
 
-$\color{#86C1B3}{\text{ bisex + lesbo ㅤㅤㅤㅤㅤㅤ demigirl + genderfluid }}$
+$\color{#86C1B3}{\text{ bisexㅤ+ lesbo ㅤㅤㅤㅤㅤ demigirl + genderfluid }}$
+
+
+<img align="right" src="https://i.postimg.cc/1Xxp1JQr/Khong-Co-Tieu-De104-20261121101413-gradient-map-custom-(1).png" alt="image" />
+
+$\color{#86C1B3}{\text{ pizzaguy ㅤ,ㅤ guest1337 ㅤ,ㅤ noctis ㅤ,ㅤ cloud ㅤㅤㅤyume♡ }}$

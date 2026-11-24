@@ -14,7 +14,7 @@ $\color{#FDDD8A}{\text{bad english + grammarㅤㅤㅤeng , vie , kor ㅤㅤㅤpr
 
 $\color{#D69560}{\text{ juneㅤ20th ㅤㅤㅤ sheherㅤ/ㅤtheythem}}$
 
-$\color{#86C1B3}{\text{ bisexㅤ+ lesbo ㅤㅤㅤㅤㅤ demigirl + genderfluid }}$
+$\color{#86C1B3}{\text{ bisexㅤ+ㅤlesbo ㅤㅤㅤㅤㅤ demigirl ㅤ+ㅤgenderfluid }}$
 
 
 <img align="right" src="https://i.postimg.cc/1Xxp1JQr/Khong-Co-Tieu-De104-20261121101413-gradient-map-custom-(1).png" alt="image" />
@@ -54,3 +54,9 @@ $\textcolor{#FDDD8A}{\text{ and ㅤㅤㅤmore ㅤㅤㅤwithout ㅤㅤㅤgithub �
   
 [ponytown-rewards](https://github.com/Ponytown-rewards) ㅤㅤㅤ[bug-town](https://github.com/bug-town) ㅤㅤㅤ[daggerstruckmage](https://github.com/daggerstruckmage) ㅤㅤㅤ[pt-everypony](https://github.com/pt-everypony) ㅤㅤㅤ[pt-of-forsaken](https://github.com/pt-of-forsaken) ㅤㅤㅤ[knox-event](https://github.com/Knox-Event) ㅤㅤㅤ[pt-ship-nominations](https://github.com/pt-ship-nominations) ㅤㅤㅤ[piddlesjet](https://github.com/piddlesjet)
 </details>
+
+<p align="center">
+  <img src="https://i.postimg.cc/T2bZGgCd/Khong-Co-Tieu-De109-20261124155701.png">
+</p>
+
+this is a gift for [@NikaMokochi](https://github.com/NikaMokochi) made by a nonbinary demon who serves in a mansion and is called [@andreslopper](https://github.com/andreslopper) 😨

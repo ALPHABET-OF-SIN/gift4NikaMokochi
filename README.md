@@ -21,7 +21,7 @@ $\color{#86C1B3}{\text{ bisexㅤ+ lesbo ㅤㅤㅤㅤㅤ demigirl + genderfluid }
 
 $\color{#86C1B3}{\text{ pizzaguy ㅤ,ㅤ guest1337 ㅤ,ㅤ noctis ㅤ,ㅤ cloud ㅤㅤㅤyume♡ }}$
 
-<details><summary>$\color{#D69560}{\text{ social links ! }</summary>
+<details><summary>$\color{#D69560}{\text{ social links ! }}$</summary>
 
 
 [<img alt="moe moeee kyun kyunnnn" src="https://i.postimg.cc/9QWy2LDK/Khong-Co-Tieu-De111-20261124190353.png" />](https://pronouns.cc/@nikamokochi)

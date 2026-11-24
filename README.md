@@ -20,3 +20,18 @@ $\color{#86C1B3}{\text{ bisexㅤ+ lesbo ㅤㅤㅤㅤㅤ demigirl + genderfluid }
 <img align="right" src="https://i.postimg.cc/1Xxp1JQr/Khong-Co-Tieu-De104-20261121101413-gradient-map-custom-(1).png" alt="image" />
 
 $\color{#86C1B3}{\text{ pizzaguy ㅤ,ㅤ guest1337 ㅤ,ㅤ noctis ㅤ,ㅤ cloud ㅤㅤㅤyume♡ }}$
+
+<details><summary>$\color{#D69560}{\text{ social links ! }</summary>
+
+
+[<img alt="moe moeee kyun kyunnnn" src="https://i.postimg.cc/9QWy2LDK/Khong-Co-Tieu-De111-20261124190353.png" />](https://pronouns.cc/@nikamokochi)
+
+[<img alt="coding suck ASS" src="https://i.postimg.cc/cCy8bhqh/Khong-Co-Tieu-De112-20261124190409.png" />
+](https://pizzanika.straw.page/)
+
+[<img alt="youre a fucking chud nika" src="https://i.postimg.cc/j5V5xj8S/Khong-Co-Tieu-De113-20261124190424.png" />
+](https://nikamokochi.atabook.org/) 
+
+[<img alt="fat little chud" src="https://i.postimg.cc/WzNJV33F/Khong-Co-Tieu-De114-20261124193225.png" />](https://guns.lol/nikamokochi)
+
+</details>

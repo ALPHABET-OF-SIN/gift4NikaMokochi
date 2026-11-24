@@ -40,7 +40,7 @@ $\color{#86C1B3}{\text{ pizzaguy ㅤ,ㅤ guest1337 ㅤ,ㅤ noctis ㅤ,ㅤ cloud 
   
 [liliana](https://github.com/HerWordsKill)ㅤㅤㅤ[naminé](https://github.com/farronhart) ㅤㅤㅤ[andre](https://github.com/andreslopper) ㅤㅤㅤ[sinx](https://github.com/OlgaSinxer) ㅤㅤㅤ[silly](https://github.com/SillyNonbinary) ㅤㅤㅤ[lily](https://github.com/Lily2Love) ㅤㅤㅤ[ash](https://github.com/vampxasher) ㅤㅤㅤ[noctis](https://github.com/CrisisShow) ㅤㅤㅤ[wyniee](https://github.com/wynhniee) ㅤㅤㅤ[markus](https://github.com/lovingl3tters) ㅤㅤㅤ[rain](https://github.com/Ra1ndt)
 ㅤㅤ
-ㅤ$\textcolor{#FDDD8A}{\text{ and ㅤㅤㅤmore ㅤㅤㅤwithout ㅤㅤㅤgithub ♡ }}$
+$\textcolor{#FDDD8A}{\text{ and ㅤㅤㅤmore ㅤㅤㅤwithout ㅤㅤㅤgithub ♡ }}$
 
 </details>
 

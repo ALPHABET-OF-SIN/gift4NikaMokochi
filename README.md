@@ -12,7 +12,7 @@
 
 $\color{#FDDD8A}{\text{ eng , vie , kor !}}$
 
-$\color{#D69560}{\text{ juneㅤ20th ㅤㅤㅤ sheherㅤ/ㅤtheythem}$
+$\color{#D69560}{\text{ juneㅤ20th ㅤㅤㅤ sheherㅤ/ㅤtheythem}}$
 
 $\color{#86C1B3}{\text{ bisexㅤ+ lesbo ㅤㅤㅤㅤㅤ demigirl + genderfluid }}$
 

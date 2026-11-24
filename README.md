@@ -10,7 +10,7 @@
 
 <img align="left" src="https://i.postimg.cc/7ZNyMw0K/Khong-Co-Tieu-De103-20261121101310-gradient-map-custom-(1).png/300/200" alt="image" />
 
-$\color{#FDDD8A}{\text{ eng , vie , kor !}}$
+$\color{#FDDD8A}{\text{bad english + grammarㅤㅤㅤeng , vie , kor ㅤㅤㅤproud vietnamese !}}$
 
 $\color{#D69560}{\text{ juneㅤ20th ㅤㅤㅤ sheherㅤ/ㅤtheythem}}$
 
@@ -37,5 +37,6 @@ $\color{#86C1B3}{\text{ pizzaguy ㅤ,ㅤ guest1337 ㅤ,ㅤ noctis ㅤ,ㅤ cloud 
 </details>
 
 <details><summary> $\color{#FDDD8A}{\text{ friends ㅤㅤㅤ/ㅤㅤㅤ oomfs }}$ </summary> 
-
+  [Liliana](https://github.com/HerWordsKill) / [Naminé](https://github.com/farronhart) / [Andre](https://github.com/andreslopper) / [Sinx](https://github.com/OlgaSinxer) / [Silly](https://github.com/SillyNonbinary) / [Lily](https://github.com/Lily2Love) / [Ash](https://github.com/vampxasher) / [Noctis](https://github.com/CrisisShow) / [Wyniee](https://github.com/wynhniie) / [Markus](https://github.com/lovingl3tters) / [Rain](https://github.com/Ra1ndt)
+  
 </details>
